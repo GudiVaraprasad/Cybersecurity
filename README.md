@@ -1,2 +1,2 @@
 Cybersecurity Projects for beginners
-![](https://ibb.co/b5Mqqhp)
+![](https://i.ibb.co/pjBGGDC/Cybersecurity-Projects.png)
